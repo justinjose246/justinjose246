@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @justin
-- 👀 I’m interested in Nigeria 
+- 👀 I’m interested in ai
 - 🌱 I’m currently learning medical laboratory 
 - 💞️ I’m looking to collaborate on laboratory 
 - 📫 How to reach me 08062089529
